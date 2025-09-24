@@ -1,4 +1,5 @@
 # Кладовая башня: от пороха до паштета.
+[Пост в telegra.ph](https://telegra.ph/Kladovaya-bashnya-ot-poroha-do-pashteta-09-24)
 ## Историческая справка
 ![Storehouse tower](/assets/photo/nn_storehouse_tower_240925.jpg)
 *Фото kremlnn.ru*
